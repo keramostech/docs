@@ -1,2 +1,2 @@
 # KERAMOS Docs
-KERAMOS Litepaper V1
+🚀 KERAMOS Litepaper V1
